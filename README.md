@@ -4,7 +4,6 @@
 
 📍 Islamabad, Pakistan  
 📧 [mrashid6695@gmail.com](mailto:mrashid6695@gmail.com)  
-📱 +92 303 3758392  
 💼 [LinkedIn Profile](https://www.linkedin.com/in/muhammad-rashid-975b6b197) · [GitHub](https://github.com/muhammadrashid123)
 
 ---
